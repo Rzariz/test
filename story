@@ -9,4 +9,4 @@ He was about to eat the mouse when the mouse desperately requested the lion to s
 The lion laughed at the mouse’s confidence and let him go.
 
 PART ---3
-Destiny
+Destiny is fated!!!
